@@ -1,3 +1,5 @@
 # YaoYangFuckingAwesome
 
-![](/home/kk/Work/YaoYangFuckingAwesome/gfBkrkF.gif)
+
+![Alt Text](https://imgur.com/gfBkrkF.gif)
+
